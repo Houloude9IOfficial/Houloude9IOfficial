@@ -2,4 +2,4 @@
 - 🌱 I’m currently learning ...
 - 🎮 I’m Working More On Fivem Resources
 - 📫 Contact Discord: Houloude10#7092
-- 📫 Contact Email: [HTGames](mailto:htgames@europe.com?subject=[GitHub]%20Source%20Han%20Sans)
+- 📫 Contact Email: [HTGames](mailto:htgames@europe.com?subject=From%2GitHub)
