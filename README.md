@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @Houloude9IOfficial<br>- 🎮 I’m Working On Sites, Applications and Games<br>- 📫 Contact Discord: Houloude10#7092<br>- 📫 Contact Email: [HTGames](mailto:htgames@europe.com?subject=From%20GitHub)
+- 👋 Hi, I’m @Houloude9IOfficial<br>- 🎮 I’m Working On Sites, Applications and Games<br>- 📫 Contact Discord: ~~Houloude10#7092~~ *banned, use: houloude9altacc<br>- 📫 Contact Email: [HTGames](mailto:htgames@europe.com?subject=From%20GitHub)
 
 
 ## 🌐 Socials:
